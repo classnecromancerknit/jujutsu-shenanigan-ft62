@@ -1,4 +1,4 @@
-#  
+#  no-ban jujutsu shenanigans Scripts is the best jujutsu shenanigans Script, featuring undetectable and fly. Safe and powerful for all your needs.
 
 
 
